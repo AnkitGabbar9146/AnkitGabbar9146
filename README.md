@@ -87,9 +87,9 @@ Suresh Gyan Vihar University, Jaipur · August 2022 – August 2026
 
 ## Connect
 
-- **Email:** [AnkitRaajDGA@gmail.com](mailto:AnkitRaajDGA@gmail.com)
-- **LinkedIn:** Add your LinkedIn profile URL
-- **GitHub:** Add your GitHub profile URL
+- **Email:[AnkitRaajDGA@gmail.com](mailto:AnkitRaajDGA@gmail.com)
+- **LinkedIn:[https://www.linkedin.com/in/ankit-kumar-72b1812aa/]
+- **GitHub:[https://github.com/AnkitGabbar9146/AnkitGabbar9146/]
 
 ---
 
