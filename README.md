@@ -89,7 +89,7 @@ Suresh Gyan Vihar University, Jaipur · August 2022 – August 2026
 
 - **Email:[AnkitRaajDGA@gmail.com](mailto:AnkitRaajDGA@gmail.com)
 - **LinkedIn:[https://www.linkedin.com/in/ankit-kumar-72b1812aa/]
-- **GitHub:[https://github.com/AnkitGabbar9146/AnkitGabbar9146/]
+- **GitHub:[https://github.com/AnkitGabbar9146?tab=repositories]
 
 ---
 
